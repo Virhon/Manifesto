@@ -8,4 +8,4 @@ We make the value
 
 Tvoříme hodnotu
 
-![Manifesto](./manifesto)
+![Manifesto]({% link ./manifesto.md %})
