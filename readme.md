@@ -1,6 +1,6 @@
 ![VIRHON corporation](./virhon-logo-full.png)
 
-We make the value
+We create value
 
 Мы создаем ценность
 
