@@ -8,4 +8,4 @@ We create value
 
 Tvoříme hodnotu
 
-[Manifesto](./manifesto.md)
+[Manifesto](manifesto-ru.md)

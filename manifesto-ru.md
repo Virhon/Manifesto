@@ -1,4 +1,5 @@
 ![VIRHON corporation](./virhon-logo-full.png)
+[EN](manifesto-en.md) [UA](manifesto-ua.md) [CZ](manifesto-cz.md)
 
 Манифест сообщества
 
