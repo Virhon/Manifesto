@@ -13,7 +13,7 @@ Uznáváme, že možnost Volby byla člověku dána Bohem a nikdo ji člověku n
 Náš život je Službou cílům, které si sami určujeme. Snažíme se vybírat smysluplné cíle tak, aby jejich dosažení vytvářelo hodnotu a zlepšovalo Svět alespoň v jednom z jeho aspektů. Obohacení nemůže být konečným cílem Služby. Peníze chápeme především jako nástroj k dosažení cílů vyšší úrovně.
 
 ## 4. Value first (Hodnota na prvním místě)
-Snažíme se o to, aby naše materiální blahobyt byl důsledkem hodnoty, kterou vytváříme, a nikoli cílem sám o sobě.
+Tvorba hodnoty je pro nás vždy tou hlavní motivací a prvotní příčinou. Netrápíme se okamžitou návratností: vytvořená a světu předaná hodnota se k autorovi nevyhnutelně vrátí — v té či oné podobě, dnes nebo zítra.
 
 ## 5. Rodina
 Rodina je nejvyšší hodnotou soukromého života každého jednotlivce.

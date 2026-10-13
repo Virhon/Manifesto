@@ -13,7 +13,7 @@ We recognize that the opportunity to Choose is granted to human beings by God, a
 Our life is Service to goals that we define for ourselves. We strive to choose meaningful goals so that achieving them creates value and improves the World, even if in a single aspect of it. Enrichment cannot be the ultimate goal of Service. We view money primarily as a tool for achieving higher-level goals.
 
 ## 4. Value First
-We strive to ensure that our material well-being is a consequence of the value we create, rather than an end in itself.
+For us, creating value is always the primary purpose and main motivation. We do not worry about immediate returns: value created and shared with the world will inevitably find its way back to its author — in one form or another, today or tomorrow.
 
 ## 5. Family
 Family is the highest value in the private life of every individual.
